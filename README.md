@@ -1,4 +1,4 @@
-## 👩🏻‍💻 Maria Diniz
+## 👩🏻‍💻 Mary Diniz
 
 
 <div>
